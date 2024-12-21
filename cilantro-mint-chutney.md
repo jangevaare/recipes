@@ -1,8 +1,5 @@
 # Cilantro-Mint Chutney
 
-**Prep Time:** 15 minutes  
-**Total Time:** 15 minutes  
-
 ## Ingredients
 - 1 cup fresh cilantro leave (tender stems are OK) (packed)  
 - 1/2 cup fresh mint leaves (packed)  
@@ -13,8 +10,6 @@
 - 1/4 tsp salt (adjust to taste)  
 - 1 tbsp olive oil  
 - 2–3 tbsp water (adjust for consistency)  
-
----
 
 ## Instructions
 
