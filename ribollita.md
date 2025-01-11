@@ -56,6 +56,6 @@
    - Ladle the ribollita into bowls and drizzle each serving with the lemon rosemary garlic oil.
    - Serve hot, accompanied by additional crusty bread if desired.
 
-*Note:* This soup often tastes even better the next day as the flavors meld and deepen. It's traditionally reheated and enjoyed over several days.
+This soup often tastes even better the next day as the flavors meld and deepen. It's traditionally reheated and enjoyed over several days.
 
-*Recipe adapted from [Feasting At Home](https://www.feastingathome.com/ribollita-recipe/)
+Recipe adapted from [Feasting At Home](https://www.feastingathome.com/ribollita-recipe/)
