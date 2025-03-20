@@ -3,48 +3,41 @@
 ## Ingredients  
 
 ### Moroccan Rice  
-- 1 cup basmati rice
-- 1 1/2 cups water
-- 1 cinnamon stick
-- 1/2 tsp cumin  
-- 1/2 tsp salt  
-- 1/4 cup raisins
+- See separate recipe
 
-### Roasted Veggies  
+### Roasted Vegetables  
 - 1 cauliflower, cut into florets
 - 1 can chickpeas, drained
 - 1 onion, sliced  
 - 2–3 tbsp olive oil  
-
-### Moroccan Spice Blend  
+- 2 cloves garlic, minced  
+- 1 tbsp fresh ginger, grated
 - 1 tsp salt  
-- 1 tsp garlic powder  
-- 1/2 tsp cracked black pepper  
-- 1/2 tsp brown sugar (optional)  
+- ½ tsp cracked black pepper  
+- ½ tsp brown sugar (optional)  
 - 1 tsp cumin  
 - 1 tsp coriander  
-- 1/2 tsp cinnamon  
-- 1/4 tsp ground cloves  
-- 1/4 tsp ground ginger  
+- ½ tsp cinnamon  
+- ¼ tsp ground cloves  
 
 ### Herby Yogurt Sauce  
-- 1 cup plain greek yogurt
+- 1 cup plain Greek yogurt
 - 1 cup parsley and/or cilantro
 - 1 garlic clove, minced
 - 1 tsp coriander
-- 1/2 tsp paprika
-- 1/4 tsp salt  
+- ½ tsp paprika
+- ¼ tsp salt  
 
 ### Bowl Additions  
-- 3 cups baby spinach  
-- 1 pomegranate  
-- 1/4 cup toasted nuts (e.g. almonds, or pepitas)
+- 3 cups baby spinach (or kale/arugula)
+- 1 pomegranate, seeded  
+- ¼ cup toasted nuts (almonds or pepitas)
+- Fresh lemon wedges or avocado slices (optional)
 
 ## Instructions  
 
-1. **Preheat oven** to 425°F (218°C).  
-2. **Cook the Rice:** In a medium pot, bring water, spices, and salt to a boil. Rinse and drain rice, then add it to the pot. Cover and simmer (white basmati: ~20 min, brown basmati: ~40 min).  
-3. **Prepare the Veggies:** On a parchment-lined sheet pan, toss cauliflower, onion, and chickpeas with olive oil. Mix the spice blend in a small bowl and sprinkle over the veggies, tossing to coat evenly.  
-4. **Roast:** Bake for 20–25 minutes. Check, toss, and cook for another 5 minutes if needed.  
-5. **Make the Yogurt Sauce:** In a bowl, mix all sauce ingredients. Add a splash of water or olive oil if a thinner consistency is desired.  
-6. **Assemble the Bowls:** Divide rice among bowls. Add a handful of baby spinach, then top with roasted cauliflower, onions, and chickpeas. Drizzle with yogurt sauce, then garnish with pomegranate seeds and toasted almonds.  
+1. **Preheat oven** to 425°F (218°C).
+2. **Prepare Moroccan Rice**.
+3. **Roast Veggies:** Toss cauliflower, chickpeas, and sliced onion with olive oil, garlic, ginger, salt, pepper, brown sugar, cumin, coriander, cinnamon, and cloves; roast on parchment-lined sheet pan for 20–25 min, tossing halfway.
+4. **Make Sauce:** Mix yogurt sauce ingredients; thin with water or olive oil if desired.
+5. **Assemble Bowls:** Layer rice, spinach, roasted veggies; drizzle sauce, garnish with pomegranate, nuts, and optional lemon wedges or avocado slices.
