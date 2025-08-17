@@ -6,7 +6,7 @@
 - 1 clove garlic, minced
 - Juice of 1 lime
 - ½ tsp ground cumin
-- Salt and freshly ground pepper, to taste
+- 1 tsp Better Than Bouillon – Vegetable Base  
 - 1–2 tbsp olive oil
 - Optional: handful fresh cilantro leaves, chopped
 
