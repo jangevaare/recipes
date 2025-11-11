@@ -1,54 +1,59 @@
-# Brown Butter & Thyme Cherry Tomato Pasta with Crispy Garlic Pangrattato
+# Cherry Tomato Brown-Butter Rigatoni
+
+Serves: 4  
+Total time: ~30–35 minutes
 
 ## Ingredients
 
-### Garlic-Infused Oil
-- 5 tbsp olive or avocado oil  
-- 4 cloves garlic, thinly sliced  
+### Garlic Chips & Infused Oil (yields ¾ cup oil)
+- ¾ cup extra-virgin olive oil
+- 8 garlic cloves, thinly sliced
 
-### Tomato Sauce
-- Remaining garlic-infused oil (after pangrattato)
-- 1 ½ pints (12–15 oz) grape tomatoes, quartered  
-- Pinch of salt  
-- 2 tsp regular tomato paste  
-- 2 tsp red pepper flakes  
-- ½ tsp red wine vinegar  
-- 5 tbsp salted butter  
-- 2 sprigs fresh thyme  
-- Zest of 1 lemon  
+### Pangrattato
+- ⅓ cup garlic-infused oil (from above)
+- 1 cup panko
+- ¼ tsp kosher salt
 
-### Garlic Pangrattato
-- 2 tbsp garlic-infused oil (reserved from above)  
-- ⅓ cup panko breadcrumbs  
-- Pinch of salt  
-- Pinch of black pepper or lemon zest (optional, for brightness)  
+### Sauce
+- Remaining garlic-infused oil from the skillet (about 7 tbsp)
+- 3 pints (24–30 oz) cherry or grape tomatoes, **halved**
+- 4 tsp tomato paste
+- 1–1½ tsp red pepper flakes (to taste)
+- 1 tsp red wine vinegar
+- 10 tbsp unsalted butter (about 140 g; 1¼ sticks)
+- 4 fresh thyme sprigs
+- Zest of 2 lemons
+- 1½ tsp kosher salt, divided (about ¾ tsp into brown butter + ¾ tsp into tomatoes)
+- 1 tsp freshly ground black pepper, plus more to finish
 
-### Rest
-- ½ lb rigatoni  
-- Asiago cheese, for garnish  
-- Fresh cracked black pepper  
-- Olive oil, for finishing  
+### Pasta
+- 1 lb rigatoni
+- Pecorino Romano, for serving (optional)
+
+## Prep (before you start cooking)
+- Halve tomatoes; slice garlic.  
+- Bring a large pot of well-salted water to a boil.  
+- Set a heatproof cup or ladle for reserving pasta water.
 
 ## Instructions
 
-### 1. Garlic & Pangrattato  
-- In a small frying pan, heat 5 tbsp oil over medium. Add sliced garlic and cook until pale golden. Remove garlic immediately and set aside (they’ll finish crisping off-heat).  
-- Spoon out 2 tbsp of this garlic oil into a small bowl. Return it to the same pan, add panko + salt, and toast until golden. Stir in a pinch of pepper or lemon zest if desired. Remove and set aside.  
+1) **Garlic chips + infused oil**  
+   Add **all** the oil and sliced garlic to a large stainless/nonstick skillet. Set over medium and cook, stirring, until just golden. Lift out garlic chips; reserve. Pour **⅓ cup** hot garlic oil into a small skillet for pangrattato; leave the **remaining oil (~7 tbsp)** in the large skillet for the sauce.
 
-### 2. Tomato Base  
-- While making pangrattato, bring a large pot of salted water to a boil.  
-- In a large frying pan, heat remaining garlic oil. Add tomatoes + pinch of salt. Cook undisturbed 3–5 min, then stir occasionally until tomatoes collapse and juices reduce to a saucy consistency.  
+2) **Toast pangrattato**  
+   Heat the small skillet over medium. Add panko and ¼ tsp salt; stir until deep golden. Transfer to a bowl.
 
-### 3. Browned Butter  
-- In the same small pan (wiped out if needed), melt 5 tbsp butter over medium-high. Cook until foamy and flecked with brown bits, 3–5 min.  
-- Remove from heat, add thyme sprigs until sizzling subsides (~30 sec), then discard. Stir in lemon zest.  
+3) **Tomatoes + pasta**  
+   Large skillet back on medium-high. Add halved tomatoes and **~¾ tsp salt**; cook 3–5 min undisturbed until some blister and juices pool, then stir and reduce to medium. Drop rigatoni into boiling water; cook to al dente, reserving up to **2 cups** pasta water.
 
-### 4. Sauce & Pasta  
-- To tomatoes, add tomato paste + red pepper flakes. Cook at least 5 min, stirring occasionally.  
-- Cook rigatoni to al dente, reserving 1 cup pasta water.  
-- Stir browned butter + vinegar into tomato mixture. Taste and adjust seasoning.  
+4) **Brown the butter**  
+   In a separate small skillet, cook butter over medium, swirling, until nutty brown bits form, 3–5 min. Off heat, add thyme to sizzle ~30 sec; discard sprigs. Stir in lemon zest and **~¾ tsp salt**.
 
-### 5. Finish & Serve  
-- Add pasta to sauce with ¼ cup pasta water. Stir vigorously to emulsify, adding more water until sauce is glossy and clings (up to 1 cup).  
-- Finish with cracked pepper and a drizzle of olive oil.  
-- Serve topped with pangrattato + crispy garlic. Garnish with Asiago.  
+5) **Build the sauce**  
+   To tomatoes, add tomato paste and red pepper flakes; cook 1–2 min. Stir in browned butter and red wine vinegar; keep at a gentle simmer.
+
+6) **Emulsify and finish**  
+   Transfer rigatoni to the sauce with **¾ cup** pasta water. Toss hard until glossy and clinging, adding more water as needed (up to ~2 cups total). Season with **~1 tsp black pepper** and additional salt to taste.
+
+7) **Serve**  
+   Plate. Top with pangrattato and the reserved garlic chips. Finish with more black pepper and pecorino if using.
