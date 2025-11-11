@@ -1,4 +1,4 @@
-# Shitake and Tofu Udon Noodles
+# Shiitake and Tofu Udon Noodles
 
 ## Ingredients
 - 200g firm tofu, pressed & cubed  
