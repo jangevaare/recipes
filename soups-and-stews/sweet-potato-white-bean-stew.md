@@ -15,11 +15,12 @@
 - 200 g tuscan kale (about 8–10 leaves), stems removed, leaves torn  
 - 8 cloves garlic, finely minced  
 - 2 tsp smoked paprika  
-- 300 ml vegetable stock  
+- 600 ml vegetable stock  
 - 2 × 540 ml cans white kidney beans, drained and rinsed  
 - 140–180 g Asiago, finely grated (to taste)  
 - Olive oil  
-- Black pepper  
+- Black pepper
+- 2 tbsp lemon juice
 
 ## Instructions
 1. **Prep (before heat):** Dice sweet potato, celery, carrot, and chosen allium; destem and tear tuscan kale; mince garlic.
@@ -29,5 +30,6 @@
 5. Spoon out ~2 cups of vegetables and liquid; blend smooth and return to the pot.
 6. Add beans and tuscan kale. Simmer 5–7 minutes until greens are tender and the stew looks creamy and cohesive.
 7. Lower heat and stir in Asiago until melted and glossy. Season with salt if needed and plenty of black pepper.
-8. **To serve:** Ladle into warm bowls; finish with olive oil and black pepper. Bread for mopping is essential.
+8. **To serve:** Ladle into warm bowls; finish with olive oil. lemon juice, and black pepper. Bread for mopping is essential.
+
 9. **Storage/freezing:** Refrigerate up to 4 days. Reheat gently with a splash of water or stock. Freeze without cheese; add Asiago after reheating.
